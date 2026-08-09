@@ -30,7 +30,7 @@
 
 - 📄 Know about my experiences [Cv/MuhammadBaberResume](Cv/MuhammadBaberResume)
 
-- ⚡ Fun fact **I think Iam Funny**
+- ⚡ Fun fact **I think I'm Funny**
 
 
 ###
